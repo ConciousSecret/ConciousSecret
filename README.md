@@ -1,0 +1,9 @@
+- I’m @ConciousSecret
+- I am interested in extraterestial life, Bible research...
+- I’m currently learning that my consiousness is vibrating in the universe with all of you....
+-  I’m looking to collaborate on subjects about my interests...
+
+<!---
+ConciousSecret/ConciousSecret is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
